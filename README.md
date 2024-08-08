@@ -12,4 +12,4 @@ superlocoloco439@gmail.com
 
 @_naldinho04
 
-<div class="tenor-gif-embed" data-postid="2529130737780900362" data-share-method="host" data-aspect-ratio="0.953815" data-width="100%"><a href="https://tenor.com/view/younge-kanye-mama%27s-boyfriend-gif-2529130737780900362">Younge Kanye GIF</a>from <a href="https://tenor.com/search/younge-gifs">Younge GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+https://tenor.com/pt-PT/view/younge-kanye-mama's-boyfriend-gif-2529130737780900362
